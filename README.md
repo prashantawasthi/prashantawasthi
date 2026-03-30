@@ -11,4 +11,3 @@
 
 ### Key Skills: Enterprise Software • Product Development • IT & AI Strategy • Engineering Leadership • Strategic Technology Planning
 
-## [LinkedIn](https://www.linkedin.com/in/prashantawasthi/)
